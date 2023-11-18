@@ -1,0 +1,1 @@
+# ews-gempaBumi-revisi-main
